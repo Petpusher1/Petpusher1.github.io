@@ -1,7 +1,4 @@
-## Gwendolyn Edgar
+## Kathy Sabry
 
-Gwen is an independant contractor running GFaline LLC, offering engineering services. Most recently, they completeed a reserach focused Masters at Tufts University, working on Human Robot Interaction. Their research focused on collaborative robotics, aiming to make robots teammates not tools. They graduated from MIT in 2019 with a Bachelors of Science in Electrical Engineering and Computer Science with a minor in Comparative Media Studies. 
-
-Gwen is interested in human-computer/machine interactions especially with the use of XR. They have worked on systems utilizing interactions between humans and machines to deliver a novel experiance in Tokyo and at MIT in visual augmented reality, audio augmented reality, virtual reality, and haptic systems. 
-
+Kathy is a life long animal enthusiest with a special intrest in exotic animals.  Having had many pets growing up her passion never waned and she always held an intrest in learning more.  In her 20's she started a career in the pet industry earning certificates for speacializing in Reptiles, birds and small animals.  Later also earning certificates in Opperant animal training.  Kathy also earned certification in K-9 and Feline nutrician.  Having reptiles as a hobby for 20 years Kathy decided to turn her hobby into a future business which bring us to our present day.  Kathy hopes to be successful enough to one day fulfill her lifelong dream of having her own exotics shop in a brick and mortar location.
 ## Critters and Stuff
