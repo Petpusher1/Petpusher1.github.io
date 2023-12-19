@@ -14,6 +14,6 @@ Classic Polmetto Het. for Butter. Produced by Rock Creek Corns in Sep. 21'
 [TikTok](https://www.tiktok.com/@kathysabry/video/7253819653938531626?lang=en)
 
 ### Munch
-<img src="images/Munch.jpg" alt="Munch" width="400"/>
+<img src="images/Munch 9-23.jpg" alt="Munch" width="400"/>
 
 Produced by us she is the daughter of Monster and an un named female who was a Platinum. Both Parents are wild caught so Munch is a first generation CB.
