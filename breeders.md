@@ -9,7 +9,7 @@ Classic corn Het. for Orchid,Palmetto, and Caramel. Produced by Rock Creek Corns
 ### Pollianna (Corn Snake)
 <img src="images/Pollianna.jpg" alt="Pollianna" width="400"/>
 
-<img src="images/Pollianna2023-12-19.jpg" alt="Pollianna" width="400"/>
+<img src="images/Pollianna 2023-12-19.jpg" alt="Pollianna" width="400"/>
 
 Classic Polmetto Het. for Butter. Produced by Rock Creek Corns in Sep. 21'
 
@@ -29,7 +29,7 @@ Ivory was purchased in a pet store so we don't know if she has unknown hets we e
 Skinderella is a scaleless okeetee produced by Premium Reptiles on 7/7/23. She is Het. for Anery and amel.
 
 ### Sugar (Corn Snake)
-<img src="images/Sugar c 12-23-22" alt="Sugar" width="400"/>
+<img src="images/Sugar c 12-23-22.jpg" alt="Sugar" width="400"/>
 
 Sugar is a Carolina Locality wild type with unknown hets.
 
