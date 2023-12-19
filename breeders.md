@@ -29,3 +29,7 @@ Crunch is the other female produced by monster and the Platinum female, thus mak
 Ivory was purchased in a pet store so we don't know if she has unknown hets we estimate she was hatched in June 22'. Her visual morph is snow stripe, so her known genes are stripe, anery and amel.
 
 [TikTok](https://www.tiktok.com/@kathysabry/video/7253814343291374894?lang=en)
+
+### Skinderella
+<img src="images/Skinderella 2023-12-19.jpg" alt="Skinderella" width="400"/>
+
