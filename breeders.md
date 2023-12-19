@@ -36,6 +36,11 @@ Sugar is a Carolina Locality wild type with unknown hets.
 
 Tess was produced by South Mountain Reptiles, she is a tessera het for Motley and Possibly het for Pied Sided.
 
+### Wednesday (Corn Snake)
+<img src="images/Wednesday 2023-12-19.jpg" alt="Wednesday" width="400"/>
+
+Wednesday is a single gene cornsnake, just Anery, probably the one with the least genetics besides Sugar. She was hatched June 22'.
+
 
 ### Munch (Tokay Gecko)
 <img src="images/Munch 9-23.jpg" alt="Munch" width="400"/>
@@ -61,3 +66,18 @@ Nibler is also wild caught and was sold to us as a male but turned out to be a f
 <img src="images/Chomper.jpg" alt="Chomper" width="400"/>
 
 Chomper was purchased from Emerald Exotics and was recently paired with Munch but they didn't sucessfully produce any eggs. They were paired for almost 3 months when suddenly he was being injured by munch so he has been seperated to recoup from his injuries. I hope to pair him with Nibler. He is Captive bred and a proven producer of Granite offspring.
+
+### Amber (Crested gecko)
+<img src="images/Amber.jpg" alt="Amber" width="400"/>
+
+Amber is a Bi color female when fired up she is red and orange, she has faint brindle markings when fired as well.
+
+### Big Daddy (Crested gecko)
+<img src="images/Big Daddy.jpg" alt="Big Daddy" width="400"/>
+
+Big Daddy is an Extream Cream Harlequin male with a big head and crests.  He has produced a lot of babies over the years.
+
+### Dalmation Pair (Crested gecko)
+<img src="images/Dalmation Pair.jpg" alt="Dalmation Pair" width="400"/>
+
+The male when fired up is a pewter gray color with black spots and the female is a cream harlequin with dalmation spots.
