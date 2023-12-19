@@ -55,6 +55,19 @@ Produced by Prismatic Corns, Ziggy was hatched June of 22'. Ziggy is a scaleless
 
 [TikTok](https://www.tiktok.com/@kathysabry/video/7253829165932236074?lang=en)
 
+### Bloody Marty (Corn Snake)
+<img src="images/Bloody Marty.jpg" alt="Bloody Marty" width="400"/>
+
+Bloody Marty is a blood red morph who is Het for Scaleless and Amel.  He was produced by Exotics by Nature and hatched June of 23'.
+
+### Casiopia (Garter Snake)
+<img src="images/Casiopia.jpg" alt="Casiopia" width="400"/>
+
+Casiopia is a Radix Plains Garter Snake, produced by Garters Dunn Right, she was born in March of 23' and is het for Albino, Melanistic and Blue Black Axanthic.
+
+[TikTok](https://www.tiktok.com/@kathysabry/video/7299540993362218283?lang=en)
+
+
 
 ### Munch (Tokay Gecko)
 <img src="images/Munch 9-23.jpg" alt="Munch" width="400"/>
