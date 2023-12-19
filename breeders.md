@@ -8,6 +8,7 @@ Classic corn Het. for Orchid,Palmetto, and Caramel. Produced by Rock Creek Corns
 
 ### Pollianna (Corn Snake)
 <img src="images/Pollianna.jpg" alt="Pollianna" width="400"/>
+
 <img src="images/Pollianna2023-12-19.jpg" alt="Pollianna" width="400"/>
 
 Classic Polmetto Het. for Butter. Produced by Rock Creek Corns in Sep. 21'
