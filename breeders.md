@@ -33,3 +33,5 @@ Ivory was purchased in a pet store so we don't know if she has unknown hets we e
 ### Skinderella
 <img src="images/Skinderella 2023-12-19.jpg" alt="Skinderella" width="400"/>
 
+Skinderella is a scaleless okeetee produced by Premium Reptiles on 7/7/23. She is Het. for Anery and amel.
+
