@@ -41,6 +41,20 @@ Tess was produced by South Mountain Reptiles, she is a tessera het for Motley an
 
 Wednesday is a single gene cornsnake, just Anery, probably the one with the least genetics besides Sugar. She was hatched June 22'.
 
+### Ziggy Stardust (Corn Snake)
+<img src="images/Ziggy Stardust.jpg" alt="Ziggy Stardust" width="400"/>
+
+Produced by Prismatic Corns, Ziggy was hatched June of 22'. Ziggy is a scaleless het for Blood Red, Anery, Caramel, Hypo, Amel, Lavender and Motley. Ziggy is a powerhouse of genetics and I look forward to pairing him with my Palmetto to produce multiple variations of the Palmetto Morph.
+
+[TikTok](https://www.tiktok.com/@kathysabry/video/7253835348340542766?lang=en)
+
+### 50 50 (Corn Snake)
+<img src="images/50 50.jpg" alt="50 50" width="400"/>
+
+50 50 is a purchase from a petstore and until we breed him we won't know if he has hidden hets. Visually we can see he is an Amel Hurricain Motley.
+
+[TikTok](https://www.tiktok.com/@kathysabry/video/7253829165932236074?lang=en)
+
 
 ### Munch (Tokay Gecko)
 <img src="images/Munch 9-23.jpg" alt="Munch" width="400"/>
