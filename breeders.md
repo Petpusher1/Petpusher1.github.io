@@ -22,3 +22,10 @@ Produced by us she is the daughter of Monster and an un named female who was a P
 <img src="images/Crunch and Monster.jpg" alt="Crunch and Monster" width="400"/>
 
 Crunch is the other female produced by monster and the Platinum female, thus making her Het. Platinum hatched in Feb.2021 this will be her first year breeding for 2024.
+
+### Ivory
+<img src="images/Ivory 2023-07-04.jpg" alt="Ivory" width="400"/>
+
+Ivory was purchased in a pet store so we don't know if she has unknown hets we estimate she was hatched in June 22'. Her visual morph is snow stripe, so her known genes are stripe, anery and amel.
+
+[TikTok](https://www.tiktok.com/@kathysabry/video/7253814343291374894?lang=en)
