@@ -28,12 +28,12 @@ Ivory was purchased in a pet store so we don't know if she has unknown hets we e
 Skinderella is a scaleless okeetee produced by Premium Reptiles on 7/7/23. She is Het. for Anery and amel.
 
 ### Sugar (Corn Snake)
-<img src="images/Sugar12-23-22.jpg" alt="Sugar" width="400"/>
+<img src="images/Sugar c 12-23-22" alt="Sugar" width="400"/>
 
 Sugar is a Carolina Locality wild type with unknown hets.
 
 ### Tess (Corn Snake)
-<img src="images/Tess12-19-23.jpg" alt="Tess" width="400"/>
+<img src="images/Tess 12-19-23.jpg" alt="Tess" width="400"/>
 
 Tess was produced by South Mountain Reptiles, she is a tessera het for Motley and Possibly het for Pied Sided.
 
