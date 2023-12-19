@@ -19,6 +19,6 @@ Classic Polmetto Het. for Butter. Produced by Rock Creek Corns in Sep. 21'
 Produced by us she is the daughter of Monster and an un named female who was a Platinum. She hatched in Feb. 21' and was the larger of the 2. Both Parents are wild caught so Munch is a first generation CB. She is Het Platinum, we don't knoe if her father has any hidden hets but hope to find out with this pairing.
 
 ### Crunch and Monster
-<img src="images/.jpg" Crunch and Monsteralt="Crunch and Monster" width="400"/>
+<img src="images/Crunch and Monster.jpg" ="Crunch and Monster" width="400"/>
 
 Crunch is the other female produced by monster and the Platinum female, thus making her Het. Platinum hatched in Feb.2021 this will be her first year breeding for 2024.
