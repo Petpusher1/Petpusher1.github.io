@@ -7,8 +7,6 @@ Classic corn Het. for Orchid,Palmetto, and Caramel. Produced by Rock Creek Corns
 [TikTok](https://www.tiktok.com/@kathysabry/video/7253833252975152430?lang=en)
 
 ### Pollianna (Corn Snake)
-<img src="images/Pollianna.jpg" alt="Pollianna" width="400"/>
-
 <img src="images/Pollianna 2023-12-19.jpg" alt="Pollianna" width="400"/>
 
 Classic Polmetto Het. for Butter. Produced by Rock Creek Corns in Sep. 21'
@@ -47,6 +45,19 @@ Produced by us she is the daughter of Monster and an un named female who was a P
 ### Crunch and Monster (Tokay Gecko)
 <img src="images/Crunch and Monster.jpg" alt="Crunch and Monster" width="400"/>
 
-Crunch is the other female produced by monster and the Platinum female, thus making her Het. Platinum hatched in Feb.2021 this will be her first year breeding for 2024.
+Crunch is the other female Fathered by monster and the Platinum female, thus making her Het. Platinum hatched in Feb.2021 this will be her first year breeding for 2024. Monster is a wild caught male so we don't know if he has any hidden hets. We hope to find out when he produces offspring with his daughter in the 2024 season.
 
+### un named (Tokay Gecko)
+<img src="images/New Addition 2023-10-03.jpg" alt="un named" width="400"/>
 
+She is a new addition and was sold to us as a male but turned out to be female. She is wild caught and is being brought to a healthy weight before we pair her with a male.
+
+### Nibler (Tokay Gecko)
+<img src="images/Nibler.jpg" alt="Nibler" width="400"/>
+
+Nibler is also wild caught and was sold to us as a male but turned out to be a female. She may posess unknown hets and has been brought to a healthy weight but I don't have a spare male to pair her with at this time.
+
+### Chomper (Tokay Gecko)
+<img src="images/Chomper.jpg" alt="Chomper" width="400"/>
+
+Chomper was purchased from Emerald Exotics and was recently paired with Munch but they didn't sucessfully produce any eggs. They were paired for almost 3 months when suddenly he was being injured by munch so he has been seperated to recoup from his injuries. I hope to pair him with Nibler. He is Captive bred and a proven producer of Granite offspring.
