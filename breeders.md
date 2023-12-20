@@ -1,4 +1,5 @@
 ## Breeding Stock
+Our future breeders will not be bred until they are the appropriate age, size and in good health.
 ### Rock (Corn Snake)
 <img src="images/Rock.jpg" alt="Rock" width="400"/>
 
