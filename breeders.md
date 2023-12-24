@@ -109,7 +109,7 @@ Big Daddy is an Super Cream Extream Harlequin, pos Het Sable male with a big hea
 <img src="images/Pos Sable holdback 1.jpg" alt="Pos Sable holdback top view" width="400"/>
 
 ### Pos Sable holdback (Crested gecko)
-<img src="images/Pos Sable holdback 4-copy.jpg" alt="Pos Sable holdback side view" width="400"/>
+<img src="images/Pos Sable holdback 4.jpg" alt="Pos Sable holdback side view" width="400"/>
 
 This is an offspring of Big Daddy, I only just learned about the Sable gene and when they were talking about the look of the babies it had striking resemblance to his offspring.  They are described as having orangish coration and dark tips on the tails, which nearly all his offspring have had.  So I am going to hold this one back and see if the white brightenes and expands on the crests and body.
 
