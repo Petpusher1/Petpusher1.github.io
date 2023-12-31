@@ -61,6 +61,16 @@ Produced by Prismatic Corns, Ziggy was hatched June of 22'. Ziggy is a scaleless
 
 Bloody Marty is a blood red morph who is Het for Scaleless and Amel.  He was produced by Exotics by Nature and hatched June of 23'.
 
+### The Brain (Corn Snake)
+<img src="images/The Brain top.jpg" alt="The Brain" width="400"/>
+
+The Brain is a recent aquisition hatched July 2023. They were a Surprise with a couple more genes than expected. The mother was an Ice and Father a Sunkissed Anery. The clutch had 4 snows, 3 of which had halo and one was green blotch. I picked up a male and female and named them Pinky and the Brain. So the visual genes are Sunkissed, Amel., Anery, Halo, Lava and Diffused.
+ 
+### The Pinky (Corn Snake)
+<img src="images/Pinky top.jpg" alt="Pinky" width="400"/>
+
+Pinky is a recent aquisition hatched July 2023. They were a Surprise with a couple more genes than expected. The mother was an Ice and Father a Sunkissed Anery. The clutch had 4 snows, 3 of which had halo and one was green blotch. I picked up a male and female and named them Pinky and the Brain. So the visual genes are Sunkissed, Amel., Anery, Halo, Lava and Diffused.
+
 ### Casiopia (Garter Snake)
 <img src="images/Casiopia.jpg" alt="Casiopia" width="400"/>
 
